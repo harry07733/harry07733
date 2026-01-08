@@ -20,5 +20,5 @@ Here are some ideas to get you started:
 - LinkedIn: https://www.linkedin.com/in/shaswatswain2005/
 - Email: shaswatswain53@gmail.com
 
-### - 😄 Pronouns:
+### 😄 Pronouns:
 - Male
